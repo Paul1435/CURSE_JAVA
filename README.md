@@ -1,3 +1,3 @@
 # CURSE_JAVA
-# Шестаков Паел 
+# Шестаков Павел 
 # https://t.me/lonelxly
